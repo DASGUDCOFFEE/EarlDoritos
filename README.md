@@ -1,2 +1,0 @@
-# EarlDoritos
-Hi! 
